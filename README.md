@@ -1,1 +1,2 @@
 # THE_PLURAL_OVERALL_MASONIC_STRONG_HAND_COMMUNITY
+The plural overall of academical sciences, forces, military, et cetera et al: THE MASONIC STRONG HAND: SEE PUBLIC MANLY P HALL ARCHIVES AT INTERNETS.
